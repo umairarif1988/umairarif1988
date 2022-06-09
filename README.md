@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @umairarif1988
+- 👀 I’m interested in Augmented reality, mixed reality user experience and quality of experience study.
+- 🌱 I’m currently learning human computer interaction, visual quality of experience, usability and effectiveness of immersive devices and platforms.
+- 💞️ I’m looking to collaborate on QoE, User Experience study of immersive environment and QoE. Moreover my interest is to develop medical applications with immersive devices to save the humankind.
+- 📫 How to reach me umairarif88@gmail.com
